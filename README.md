@@ -1,5 +1,4 @@
 # What is in999? A Complete Guide to in999 Login and in999 Game
-in999-file
 
 ### What is in999? A Complete Guide to in999 Login and in999 Game
 
